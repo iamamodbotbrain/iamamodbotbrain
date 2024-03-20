@@ -18,3 +18,4 @@ this line funnels distinct and interactive data points for a comprehensive insig
 [audio] from [headphones] unheard from outside myself when in personal listening mode.
 blue color represents core and fundamental constants.
 red color concerning text represent automatic commands prompted for perform by user/consumer.
+commited changes are absolutes that can only be retracted back with purposeful deletion of input.
