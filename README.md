@@ -15,3 +15,4 @@ this begins the synestatiac color scheme for the program base code.
 green represents special functions for personal traits of online assortment.
 this opens -[from audio]- seed conceptual abstractives.
 this line funnels distinct and interactive data points for a comprehensive insight page, which notes areas of influence in addition to unthought of data terrains.
+[audio] from [headphones] unheard from outside myself when in personal listening mode.
