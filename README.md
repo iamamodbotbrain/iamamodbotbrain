@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...unfathomable creationionary magic performed
 - 🌱 I’m currently learning ...coding
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me ...persnonal notepad with intention
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
@@ -19,3 +19,4 @@ this line funnels distinct and interactive data points for a comprehensive insig
 blue color represents core and fundamental constants.
 red color concerning text represent automatic commands prompted for perform by user/consumer.
 commited changes are absolutes that can only be retracted back with purposeful deletion of input.
+observable and felt changes caused process the proper output by feedback input back into subjective experience by stimuli.
