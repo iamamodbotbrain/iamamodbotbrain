@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @iamamodbotbrain
 - 👀 I’m interested in ...unfathomable creationionary magic performed
-- 🌱 I’m currently learning ...coding
+- 🌱 I’m currently learning ...program sow speak
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...persnonal notepad with intention
+- this is a persnonal notepad with intention
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
